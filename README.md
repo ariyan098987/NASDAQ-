@@ -103,3 +103,4 @@ An unexpectedly strong August jobs report — payrolls grew 162,000 versus the r
 Oil and geopolitics feeding into yields
 
 Falling oil prices have helped halt a surge in Treasury yields, with crude dropping on news that the US and Iran moved closer to easing tensions around Persian Gulf tanker blockades — lower yields take pressure off growth-stock valuations. 
+                                                                  ***********************************************
